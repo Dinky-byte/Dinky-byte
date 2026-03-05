@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Dinky-byte
 - 👀 I’m interested in all things concerning computer
-- 🌱 I’m currently learning in Baringo high school
-- 💞️ I’m looking to collaborate on gift hub- 📫 You may reach me by my account |
-- 😄 Pronouns: ...
+- 💞️ I’m looking for to collaborate with on gift hub- 📫 You may reach me by my account |
+- 😄 Pronouns:he
+
 - ⚡ Fun fact: ...
 
 <!---
